@@ -1,0 +1,1 @@
+# kudaranai_appli
